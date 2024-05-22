@@ -1,2 +1,2 @@
 # Kishori
-Hello world. this is my profile 
+Hello 👋. I'm Kishori Khatke
