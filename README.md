@@ -1,2 +1,2 @@
 # Kishori
-Hello 👋. I'm Kishori Khatke
+Hello 👋, I'm Kishori Khatke
